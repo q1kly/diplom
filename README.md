@@ -1,1 +1,1 @@
-# diplom
+# diplom Рябов О.А
